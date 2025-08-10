@@ -30,3 +30,6 @@ app link:-https://heartpredictionapp.streamlit.app/
 
 YOUR VIEW?
 if you have any advice for me i would be glad to hear it am always eager to learn more 
+
+heres my social to connect :-
+www.linkedin.com/in/osama-khan-5aba381b1
